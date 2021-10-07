@@ -7,3 +7,5 @@ Their Soyuz MS-19 spacecraft took off from Baikonur in Kazakhstan, and three hou
 US actor Tom Cruise and Nasa have also been planning to make a film there.
 
 There was more than a touch of show business glamour when the Soyuz crew launched on Tuesday, as the TV cameras focused on Peresild and her 12-year-old daughter Anna, who was watching from a safe distance.
+
+Source: BBC website.
